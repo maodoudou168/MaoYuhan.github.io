@@ -1,2 +1,2 @@
-# MaoYuhan.github.io
-Yuhan Mao's blog
+# Yuhan Mao's blog
+
